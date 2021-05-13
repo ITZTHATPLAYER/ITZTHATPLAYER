@@ -2,7 +2,7 @@
 - 👀 I’m interested in /coding and scripting/
 - 🌱 I’m currently learning /how to script and code on roblox/
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me /add me on discord: ITZTHATPLAYER#9233 and on roblox: xXtwilightsparkleX12, or ITZTHATPLAYER/.
+- 📫 How to reach me /add me on discord: ITZTHATPLAYER#9233 and on roblox: xXtwilightsparkleX12 (my main), or ITZTHATPLAYER (my alt)/.
 
 
 <!---
